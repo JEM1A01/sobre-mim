@@ -6,5 +6,5 @@ Se alguém tiver dicas ou quiser trocar ideias sobre programação, eu adoraria 
 Obrigada por me acompanharem nessa nova aventura!
 
 
-![](https://tenor.com/pt-BR/view/eminem-gif-20815809)
+![](https://media.tenor.com/s8Jsd_Ts-FgAAAAM/eminem.gif)
 
